@@ -1,2 +1,2 @@
 # global-worming
-global warmilg
+the earth is warming up
